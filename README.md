@@ -1,0 +1,2 @@
+# TurkishAi
+ GÜZELO OLACAK İNŞ
